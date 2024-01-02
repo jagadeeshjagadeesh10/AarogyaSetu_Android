@@ -9,7 +9,7 @@ Gopala Krishnan S
 R S Mani  
 Abhishek Singh  
 Dr. Seema Khanna  
-Jagadeesh
+Jagadeesh Chowdary 
 
 ---------------------------------
 Industry and Academia Leadership
